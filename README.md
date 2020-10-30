@@ -1,0 +1,2 @@
+# RascunhoDoProjetoAPPMegaSorte
+Rascunho do Projeto
